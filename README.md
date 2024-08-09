@@ -1,0 +1,1 @@
+# revisi_portofolio_chyka
